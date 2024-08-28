@@ -11,4 +11,4 @@ Estou desenvolvendo estudos de tecnologia
 
 amicigiuliano34@gmail.com
 
-![](https://media1.tenor.com/m/aLMSiZ-Hx8IAAAAd/memphis-grizzlies-ja-morant.gif)
+![](https://tenor.com/pt-BR/search/thiago-veigh-gifs)
